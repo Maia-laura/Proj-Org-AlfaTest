@@ -33,7 +33,7 @@
 ### 📫 Como me encontrar:
 - ✉ Email: [laura.mmr97@gmail.com]
 - 💼 [LinkedIn](https://www.linkedin.com/in/laura-m-maia/)
-- 🌐 (Se tiver outro link, tipo portfólio, colocamos aqui)
+- 🌐 
 
 ---
 
